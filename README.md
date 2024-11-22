@@ -11,7 +11,11 @@ The primary stakeholders that iLock will focus on include car users who represen
 Table of Contents for the project: 
 
 Item 1: Ethical Business Plan
+
 Item 2 : Cultural Policy
+
 Item 3 Ethics Policy
+
 Item 4 : YouTube Presentation
+
 Item 5: References
